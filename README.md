@@ -1,0 +1,2 @@
+# thomsonr
+zadania
